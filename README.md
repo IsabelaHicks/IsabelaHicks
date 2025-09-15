@@ -1,6 +1,8 @@
 ## Hi there 👋
 
-<!--
+
+<![PSYO 3505 class picture](https://github.com/user-attachments/assets/f64c2714-4068-462e-8826-2dfca2248d41)
+!--
 **IsabelaHicks/IsabelaHicks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
