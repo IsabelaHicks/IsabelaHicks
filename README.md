@@ -23,6 +23,6 @@
 
 ### What are my career plans after graduating with my bachelors degree in Psychology?
 >My career plans after graduation is to be accepted into a masters program for becoming a *Physician Assistant (PA)* and to specialize in *Dermatology*. 
->> I want to specialize in *Dermatology* specifically because I enjoy the organic chemistry side of skincare and because I struggled with acne growing up. Helping people feel more confident in their skin (and their nails and hair) is something that I am very passionate about!!
+- I want to specialize in *Dermatology* specifically because I enjoy the organic chemistry side of skincare and because I struggled with acne growing up. Helping people feel more confident in their skin (and their nails and hair) is something that I am very passionate about!!
 
 ---
