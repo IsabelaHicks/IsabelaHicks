@@ -13,7 +13,7 @@
 ### Why did I enroll into PSYO 3505 (i.e. Neural Data Science)?
 >I enrolled into **PSYO 3505** originally because this course goes towards getting my certificate in *Neurotechnology Innovation,* however my main reason for choosing this course is that I never have learned a coding language before. I enjoyed when reading the course description for this class that I would get the opportunity to learn how scientific programming in *Python* is used in lab scenarios and in the real world, which I believe is an asset to have after graduating with my degree in **Psychology**.
 
----
+
 
 ### What got me interested in Psychology?
 >Ever since I was little I've always been more of an observant person and was interested in the thoughts and motivations of people. However, I never thought of majoring in **Psychology** until halfway through my second year as a **Chemistry** major.
