@@ -17,12 +17,12 @@
 
 ### What got me interested in Psychology?
 >Ever since I was little I've always been more of an observant person and was interested in the thoughts and motivations of people. However, I never thought of majoring in **Psychology** until halfway through my second year as a **Chemistry** major.
-- I found that I only liked a niche part of **Chemistry** in comparison to **Psychology**, thus this was a better fit with my interests and goals for the future.
+- I found that I only liked a niche part of **Chemistry** whereas I enjoyed learning many areas of **Psychology**. I discovered as well that my major was not important in terms of my future career plans, thus majoring in **Psychology** is a better fit for me overall. 
 
 
 
-### What are my plans after graduating with my degree in Psychology?
->My plan after graduating with my bachelors degree is to be accepted into a masters program to become a *Physician Assistant (PA)* and to specialize in *Dermatology*. The job of a PA encompases all aspects I like about what doctors are qualified to do, but with less schooling and on a collaborative level for more invasive procedures.
->> I want to specialize in *Dermatology* specifically because I enjoy the organic chemistry side of skincare and because I struggled with acne growing up. Helping people feel more confident in their skin (and also their nails and hair) is something that I am very passionate about!!
+### What are my career plans after graduating with my bachelors degree in Psychology?
+>My career plans after graduation is to be accepted into a masters program for becoming a *Physician Assistant (PA)* and to specialize in *Dermatology*. 
+>> I want to specialize in *Dermatology* specifically because I enjoy the organic chemistry side of skincare and because I struggled with acne growing up. Helping people feel more confident in their skin (and their nails and hair) is something that I am very passionate about!!
 
 ---
